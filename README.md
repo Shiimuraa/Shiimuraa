@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shiimuraa
-- 
-- 
+- not interested for everything
+
   
 
 <!---
